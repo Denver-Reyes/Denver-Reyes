@@ -1,5 +1,5 @@
 # 💫 About Me:
-An aspiring Software Engineer<br><br>🎮Hobbies: Singleplayer and Co-op Video Games, Achievement Hunting in Video Games, Listening to Music
+An aspiring Software Engineer<br><br>Hobbies: <br>🎮Singleplayer and Co-op Video Games<br>🏆Achievement Hunting in Video Games<br>🎧Listening to Music
 
 
 ## 🌐 Socials:
